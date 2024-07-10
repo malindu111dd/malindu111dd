@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+NAME- PROMOD 
+AGE -17
+CITY-HORANA
+
+IN BOX-+9476880588
